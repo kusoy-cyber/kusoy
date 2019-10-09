@@ -1,0 +1,2 @@
+# kusoy
+pelajar
